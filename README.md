@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Carlos Henrique😁
+## Bem-vindo(a) ao perfil de Carlos Henrique😁
 
  <div>
    <a href="https://github.com/carlosh312">
